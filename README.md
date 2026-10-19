@@ -40,3 +40,4 @@ I love visiting land and helping resolve land disputes. I plan and organize plot
 - Email: sidneykomagum@gmail.com
 - Contact: 0785142264/ 0742969997
 - Portfolio: [YOUR-GITHUB-USERNAME.github.io](https://YOUR-GITHUB-USERNAME.github.io)
+- Linkedin https://www.linkedin.com/in/komagum-sidney-770485369?utm_source=share_via&utm_content=profile&utm_medium=member_android
